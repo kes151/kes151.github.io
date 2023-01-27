@@ -4,7 +4,7 @@
 
 Kathryn Sanford is a third-year PhD student of English literature at the University of Miami. Focusing on medieval and early modern literature, she is primarily interested in utilizing psychoanalytic approaches— namely trauma theory— to dissect narratives of the monstrous. In her future research, she intends to explore how monstrous elements impact romantic narratives in medieval literature.
 
-> When is a monster not a monster? Oh, when you love it. <br>
+> "When is a monster not a monster? Oh, when you love it." <br>
 > *Start Here,* Caitlyn Siehl
 
 Kathryn is also a TTRPG enthusiast and a hobby jewelry maker.
@@ -27,7 +27,7 @@ Kathryn is also a TTRPG enthusiast and a hobby jewelry maker.
 
 ## Publications 
 
-None yet, but hopeful for some soon!
+None yet, but hopeful to publish soon!
 
 ## My links 
 
