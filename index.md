@@ -11,8 +11,8 @@ Kathryn is also a TTRPG enthusiast and a hobby jewelry maker.
 
 ## Contact information
 
-[kes151@miami.edu](kes151@miami.edu)<br>
-[kathrynesanford@gmail.com](kathrynesanford@gmail.com)
+[kes151@miami.edu](emailto:kes151@miami.edu)<br>
+[kathrynesanford@gmail.com](emailto:kathrynesanford@gmail.com)
 
 ## Education 
 
