@@ -2,6 +2,7 @@
 layout: default
 title: Adventures in DH
 ---
+
 # Adventures in DH
 
 ## About me 
